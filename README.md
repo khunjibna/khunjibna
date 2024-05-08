@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khunjibna
-- 👀 I’m interested in: Gameing
+- 👀 I’m interested in: Gaming / Travel
 - 🌱 I’m currently learning: it-support / nostr community / ue5 movie
 - 💞️ I’m looking to collaborate on: done
 - 📫 How to reach me: done
